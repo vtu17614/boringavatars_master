@@ -1,1 +1,0 @@
-# boringavatars_master
